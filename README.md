@@ -102,8 +102,8 @@ If you’d like to collaborate, check the Issues tab or start a Discussion.
 
 ## 📩 Contact
 
-Author: Aditya Rane
-🔗 LinkedIn: https://www.linkedin.com/in/aditya-rane-9b82822aa/
+Author: Gouri Pande
+🔗 LinkedIn: www.linkedin.com/in/gouri-pandey-83610028a
 
 
 
